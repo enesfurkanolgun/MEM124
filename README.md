@@ -1,2 +1,1 @@
-# enesfurkanolgn.homework1
-Homework1
+# MEM124-ENES FURKAN OLGUN
